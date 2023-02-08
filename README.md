@@ -1,2 +1,2 @@
-# your-AharownJackson.github.io
+# AharownJackson.github.io
 Aharown Jackson - Personal Website
